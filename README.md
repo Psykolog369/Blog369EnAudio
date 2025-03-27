@@ -1,4 +1,4 @@
-These are the mp3 files where I read articles on my blog for those who might have difficulties with written text.
+These are the mp3 files where I read articles on my blog for those who might have difficulties with written text or just prefer audio.
 
 TalkTime with Psykolog 369
 
